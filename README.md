@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: nothing for now
 - 📫 How to reach me: don't contact me
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm learning English and Japanese, but i still need to improve my skills a lot.
 
 <!---
 taika-tk3/taika-tk3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
